@@ -1,4 +1,4 @@
-![Keyboard Warrior](https://tenor.com/PklS.gif)
+(https://tenor.com/PklS.gif)
 # Hi there, I'm George 👋
 
 💻 **Freelance Web Developer**  
