@@ -1,4 +1,5 @@
-(https://tenor.com/PklS.gif)
+![Work Computer](https://tenor.com/PklS.gif)
+
 # Hi there, I'm George 👋
 
 💻 **Freelance Web Developer**  
