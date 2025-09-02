@@ -1,4 +1,4 @@
-![Work Computer]([https://tenor.com/PklS.gif](https://tenor.com/en-GB/view/work-computer-gif-9810614))
+![Work Computer](https://media1.tenor.com/m/wF5RiCnfj34AAAAC/work-computer.gif)
 
 # Hi there, I'm George 👋
 
